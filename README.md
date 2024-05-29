@@ -17,4 +17,5 @@
 ![изображение](https://github.com/beast86m/infobez2/assets/47268167/90c341f5-fc35-44b2-8966-03f152a8f8d4)
 
 ![изображение](https://github.com/beast86m/infobez2/assets/47268167/8aced1dc-42ec-4dac-8632-a337009a17d1)
+![изображение](https://github.com/beast86m/infobez2/assets/47268167/e0e3500c-b456-46d6-87df-6a34d7bd33b7)
 
